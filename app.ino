@@ -1,3 +1,0 @@
-contoh program
-
-tambahan
